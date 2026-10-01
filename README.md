@@ -1,1 +1,1 @@
-[Net I Cert 8.2026 90 (1).pdf](https://github.com/user-attachments/files/32883326/Net.I.Cert.8.2026.90.1.pdf)
+<img width="1058" height="812" alt="Image" src="https://github.com/user-attachments/assets/3c365e6e-f31b-4389-a3db-aa78e803fd05" />
